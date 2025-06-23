@@ -1,6 +1,6 @@
 ## Aaa...
 
-Love Music、Code、Story
+Love Music、Coding、Story
 
 ---
 
